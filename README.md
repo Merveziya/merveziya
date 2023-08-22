@@ -1,6 +1,6 @@
 
- 
-  ![image 1 (5)](https://github.com/Merveziya/Portfolio-1/assets/108355676/62ab2a6e-7878-464f-a192-ed9c13c84238)
+
+![image 1 (5)](https://github.com/Merveziya/merveziya/assets/108355676/f83e64eb-cbec-4a2b-a6a1-c2b758ea91dc)
 
 
 
